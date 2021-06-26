@@ -1,5 +1,5 @@
 sd- 👋 Hi, I’m @NachoZ7
-- 👀 I’m interested in ...muchas ramas de la tecnologia y la compresión.
+- 👀 I’m interested in ...dar lo mejor de mi en lo que pueda ayudar.
 - 🌱 I’m currently learning ...sobre programación y  muchas cosas más.
 - 💞️ I’m looking to collaborate on ...mi vida diaria  xd.
 - 📫 How to reach me ... por instagram o linkedin :)
