@@ -1,7 +1,7 @@
 sd- 👋 Hi, I’m @NachoZ7
-- 👀 I’m interested in ...dar lo mejor de mi en lo que pueda ayudar.
+- 👀 I’m interested in ...dar lo mejor de mi cada dia.
 - 🌱 I’m currently learning ...sobre programación y  muchas cosas más.
-- 💞️ I’m looking to collaborate on ...mi vida diaria  xd.
+- 💞️ I’m looking to collaborate on ... mi vida y la de mis allegados en cada momento que pueda.
 - 📫 How to reach me ... por instagram o linkedin :)
 
 <!---
